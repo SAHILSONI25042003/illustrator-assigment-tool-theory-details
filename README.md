@@ -1,0 +1,1 @@
+# illustrator-assigment-tool-theory-details
